@@ -1,2 +1,2 @@
-# faith_basics
-Chistian faith basics Bible study
+# Евангелие от Иоанна. Изучение
+
